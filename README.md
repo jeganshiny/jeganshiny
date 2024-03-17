@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @jeganshiny
+- 👀 I’m interested in Linux
+- 💞️ I’m looking to collaborate on ArchLinux 
+- 📫 How to reach me t.me/jeganshiny
+- 😄 Pronouns: He
